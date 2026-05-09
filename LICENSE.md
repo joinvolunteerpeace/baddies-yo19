@@ -1,4 +1,4 @@
-
+best baddies Scripts is the best baddies Script, featuring auto-farm and auto-collect. Safe and powerful for all your needs.
 
 
 
